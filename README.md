@@ -1,4 +1,4 @@
-For all questions : vova.veider000@gmail.com
+For all questions : vova.dickun@gmail.com
 
 <!---
 VovaVeider/VovaVeider is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
